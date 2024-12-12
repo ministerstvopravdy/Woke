@@ -14,7 +14,7 @@ Odkazy na woke hovadiny
 
 ### Sony
 
-[Hra "Concord", která stála 400 miionů dolarů, týden po vydání skončila](https://www.youtube.com/shorts/EZhky47ZFcA)
+[Hra "Concord", které výroba stála 400 milionů dolarů, týden po vydání skončila](https://www.youtube.com/shorts/EZhky47ZFcA)
 
 ## Státy
 
