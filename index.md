@@ -14,13 +14,13 @@ Odkazy na woke hovadiny
 
 ### Sony
 
-[Concord](https://www.youtube.com/shorts/EZhky47ZFcA)
+[Hra "Concord", která stála 400 miionů dolarů, týden po vydání skončila](https://www.youtube.com/shorts/EZhky47ZFcA)
 
 ## Státy
 
 ### Austrálie
 
-[‘Absolutely crazy’: Gender affirming care offered to kids aged three in Melbourne - „Absolutetně šílené“: Nemocnice v Melbourne nabízí změnu pohlaví dětem ve věku tří let](https://www.skynews.com.au/opinion/outsiders/absolutely-crazy-gender-affirming-care-offered-to-kids-aged-three-in-melbourne/video/045510cb7c88eb70fc419417b1c6cf78)
+[Nemocnice v Melbourne nabízí změnu pohlaví dětem ve věku tří let](https://www.skynews.com.au/opinion/outsiders/absolutely-crazy-gender-affirming-care-offered-to-kids-aged-three-in-melbourne/video/045510cb7c88eb70fc419417b1c6cf78)
 
 
 ### Švédsko
