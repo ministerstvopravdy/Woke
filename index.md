@@ -4,7 +4,7 @@ Odkazy na woke hovadiny
 
 ## Jaguár
 
-(Reklama 2024)[https://www.youtube.com/watch?v=rLtFIrqhfng]
+[Reklama 2024](https://www.youtube.com/watch?v=rLtFIrqhfng)
 
 ## Google
 
