@@ -2,6 +2,10 @@
 
 Odkazy na woke hovadiny
 
+## Vysvětlivky
+
+DEI (Diversity, equity, and inclusion) - Zástěrná zkratka pro diskriminaci bělochů (hlavně mužů)
+
 ## Firmy
 
 ### Jaguár
@@ -26,3 +30,8 @@ Odkazy na woke hovadiny
 ### Švédsko
 
 [Švédská státní televize natočila velkorozpočtový seriál nazvaný "Švédská historie", kde jsou první Švédi zobrazeni jako černoši. Pak asi vybledli.](https://nordictimes.com/the-nordics/sweden/swedish-history-goes-multicultural-in-new-svt-series/)
+
+
+### USA
+
+[Bidenova administrativa utratila miliardu dolaů na podporu DEI ve školství](https://x.com/America1stLegal/status/1867272222806540710)
