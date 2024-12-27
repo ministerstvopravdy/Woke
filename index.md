@@ -20,6 +20,10 @@ DEI (Diversity, equity, and inclusion) - Zástěrná zkratka pro diskriminaci b�
 
 [Hra "Concord", které výroba stála 400 milionů dolarů, týden po vydání skončila](https://www.youtube.com/shorts/EZhky47ZFcA)
 
+### Wikipedie
+
+[Z ropočtu 177 milionů dolarů vyhazuje Wikipedie 50 milionů dolarů na DEI](https://nypost.com/2024/12/25/business/elon-musk-urges-supporters-not-to-donate-to-wikipedia-over-dei/)
+
 ## Státy
 
 ### Austrálie
